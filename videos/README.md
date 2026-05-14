@@ -2,4 +2,5 @@
 
 ----
 
-- 1 - 📺 [STOMPING-UP-A-STORM-｜-Baby-Steps-Part-6](https://github.com/enderir/yd_free/tree/main/videos/STOMPING-UP-A-STORM-%EF%BD%9C-Baby-Steps-Part-6)
+- 1 - ▶️ [MASTERS-OF-NONE-｜-CRYO-w⧸-Bob-&-Wade-Part-2](https://github.com/enderir/yd_free/tree/main/videos/MASTERS-OF-NONE-%EF%BD%9C-CRYO-w%E2%A7%B8-Bob-%26-Wade-Part-2)
+- 2 - ▶️ [STOMPING-UP-A-STORM-｜-Baby-Steps-Part-6](https://github.com/enderir/yd_free/tree/main/videos/STOMPING-UP-A-STORM-%EF%BD%9C-Baby-Steps-Part-6)
